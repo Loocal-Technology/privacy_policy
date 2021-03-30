@@ -48,4 +48,5 @@ Podemos atualizar nossa Política de Privacidade de tempos em tempos. Portanto, 
 Esta política entra em vigor a partir de 28/03/2021.
 
 *Entre em contato conosco*
+
 Se você tiver alguma dúvida ou sugestão sobre nossa Política de Privacidade, não hesite em entrar em contato conosco pelo e-mail contato@loocal.online.
